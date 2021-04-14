@@ -4,7 +4,7 @@
 # Orden del Argumento:
 
  1. Estadísticas de contagios y muertes. Contraste por países, por años y con otras enfermedades.
- 2. Análisis de Exceso de Mortalidad. Mención a reducción de casos de gripe común. 
+ 2. Análisis de exceso de mortalidad. Mención a reducción de casos de gripe común. 
  3. PCR, problemas con el diagnóstico de contagios y de muertes. 
  4. Posible origen de laboratorio, análisis de partes implicadas. 
  5. Evento 201, Rockefeller Escenarios y más posible conocimiento previo. 
