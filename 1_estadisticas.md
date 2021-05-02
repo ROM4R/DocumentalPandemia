@@ -26,6 +26,6 @@
 
 [Tasa de letalidad por la infección de la COVID-19 calculada a partir de los datos de seroprevalencia](https://www.who.int/bulletin/volumes/99/1/20-265892-ab/es/?fbclid=IwAR34O9ICvLvRzR3YQuXW70cgsoHI6dOXUnfSp)
 
-
+[El consumo nocivo de alcohol mata a más de 3 millones de personas al año, en su mayoría hombres](https://www.who.int/es/news/item/21-09-2018-harmful-use-of-alcohol-kills-more-than-3-million-people-each-year--most-of-them-men)
 
 
