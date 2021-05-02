@@ -13,3 +13,19 @@
 [Esta temporada ha habido 12 casos de gripe frente a 9.391 del año pasado](https://www.elmundo.es/ciencia-y-salud/salud/2021/04/09/607047bcfc6c83dd5b8b45c5.html)
 
 [Suecia tuvo una tasa de mortalidad inferior a la de la mayor parte de Europa en 2020, a pesar de que no hubo confinamientos](https://fee.org.es/articulos/suecia-tuvo-una-tasa-de-mortalidad-inferior-a-la-de-la-mayor-parte-de-europa-en-2020-a-pesar-de-que-no-hubo-confinamientos/amp)
+
+[Tracking covid-19 excess deaths across countries](https://www.economist.com/graphic-detail/coronavirus-excess-deaths-tracker)
+
+[Esta temporada ha habido 12 casos de gripe frente a 9.391 del año pasado](https://www.elmundo.es/ciencia-y-salud/salud/2021/04/09/607047bcfc6c83dd5b8b45c5.html)
+
+[New study puts COVID infection fatality rate at only 0.15 percent](https://www.lifesitenews.com/news/new-study-puts-covid-infection-fatality-rate-at-only-0.15-percent)
+
+[Coronavirus en África: qué hay detrás de la aparente resistencia del continente africano a la pandemia](https://www.bbc.com/mundo/noticias-internacional-52575102)
+
+[Covid-19: cómo se construye el pánico con los números](https://tierrapura.org/2021/04/28/covid-19-como-se-construye-el-panico-con-los-numeros/)
+
+[https://www.who.int/bulletin/volumes/99/1/20-265892-ab/es/?fbclid=IwAR34O9ICvLvRzR3YQuXW70cgsoHI6dOXUnfSp](https://www.who.int/bulletin/volumes/99/1/20-265892-ab/es/?fbclid=IwAR34O9ICvLvRzR3YQuXW70cgsoHI6dOXUnfSp)
+
+
+
+
