@@ -28,4 +28,6 @@
 
 [El consumo nocivo de alcohol mata a más de 3 millones de personas al año, en su mayoría hombres](https://www.who.int/es/news/item/21-09-2018-harmful-use-of-alcohol-kills-more-than-3-million-people-each-year--most-of-them-men)
 
+[Epidemia de tabaquismo: en Argentina, hay 9 millones de fumadores](https://www.caeme.org.ar/epidemia-de-tabaquismo-en-argentina-hay-9-millones-de-fumadores/#:~:text=El%20consumo%20de%20tabaco,fumadores%20expuestos%20al%20humo%20ajeno)
+
 
