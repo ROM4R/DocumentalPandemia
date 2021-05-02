@@ -9,3 +9,7 @@
 [COVID-19 Deaths: A Look at U.S. Data - Dr Genevieve Briand](https://odysee.com/@halloftruth:c/covid-19-deaths-a-look-at-US-data-dr-genevieve-briand:c)
 
 [US Virus Numbers Now Include Probable Cases Without Tests](https://www.usnews.com/news/health-news/articles/2020-04-15/us-virus-numbers-now-include-probable-cases-without-tests)
+
+[Esta temporada ha habido 12 casos de gripe frente a 9.391 del año pasado](https://www.elmundo.es/ciencia-y-salud/salud/2021/04/09/607047bcfc6c83dd5b8b45c5.html)
+
+[Suecia tuvo una tasa de mortalidad inferior a la de la mayor parte de Europa en 2020, a pesar de que no hubo confinamientos](https://fee.org.es/articulos/suecia-tuvo-una-tasa-de-mortalidad-inferior-a-la-de-la-mayor-parte-de-europa-en-2020-a-pesar-de-que-no-hubo-confinamientos/amp)
