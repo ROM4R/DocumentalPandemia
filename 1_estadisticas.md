@@ -24,7 +24,7 @@
 
 [Covid-19: cómo se construye el pánico con los números](https://tierrapura.org/2021/04/28/covid-19-como-se-construye-el-panico-con-los-numeros/)
 
-[https://www.who.int/bulletin/volumes/99/1/20-265892-ab/es/?fbclid=IwAR34O9ICvLvRzR3YQuXW70cgsoHI6dOXUnfSp](https://www.who.int/bulletin/volumes/99/1/20-265892-ab/es/?fbclid=IwAR34O9ICvLvRzR3YQuXW70cgsoHI6dOXUnfSp)
+[Tasa de letalidad por la infección de la COVID-19 calculada a partir de los datos de seroprevalencia](https://www.who.int/bulletin/volumes/99/1/20-265892-ab/es/?fbclid=IwAR34O9ICvLvRzR3YQuXW70cgsoHI6dOXUnfSp)
 
 
 
