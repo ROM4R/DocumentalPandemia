@@ -30,4 +30,6 @@
 
 [Epidemia de tabaquismo: en Argentina, hay 9 millones de fumadores](https://www.caeme.org.ar/epidemia-de-tabaquismo-en-argentina-hay-9-millones-de-fumadores/#:~:text=El%20consumo%20de%20tabaco,fumadores%20expuestos%20al%20humo%20ajeno)
 
+[Gripe hoy: estadísticas y datos sobre casos en España](https://www.epdata.es/datos/gripe-hoy-estadisticas-datos-casos-espana/202/espana/106)
+
 
