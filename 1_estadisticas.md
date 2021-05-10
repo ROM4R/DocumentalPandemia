@@ -14,4 +14,12 @@
 
 [Gripe hoy: estadísticas y datos sobre casos en España](https://www.epdata.es/datos/gripe-hoy-estadisticas-datos-casos-espana/202/espana/106)
 
+[Selección Forbes 2020 |Altos costos en hospitales y daño patrimonial a las familias, otra faceta del Covid-19](https://www.forbes.com.mx/economia-covid-19-altos-costos-hospitales-privados-dano-patrimonial/)
+
+[Covid-19 ya es la enfermedad más cara para atender en hospitales privados](https://www.forbes.com.mx/noticias-covid-19-enfermedad-mas-cara-hospitales-privados/?p=705700?p=705700&preview=true&_thumbnail_id=703086)
+
+[Hasta 73.000 dólares por entrar en la UCI: el coste de contagiarse del virus en EEUU](https://www.lainformacion.com/mundo/coronavirus-estados-unidos-coste-tratamiento-uci-pandemia/6562325/?autoref=true)
+
+[105. Sector Salud suscribe convenio con hospitales privados para hacer frente a la pandemia de COVID-19](https://www.gob.mx/salud/prensa/105-sector-salud-suscribe-convenio-con-hospitales-privados-para-hacer-frente-a-la-pandemia-de-covid-19)
+
 
