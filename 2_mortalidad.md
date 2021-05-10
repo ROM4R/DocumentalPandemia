@@ -29,3 +29,5 @@
 
 [Exceso de mortalidad España. 68.000](https://www.eldiario.es/sociedad/muertes-semana-dispara-mortalidad-coronavirus-12-enero_1_5959361.html)
 
+[Fallecimientos por 1.000 habitantes en España desde 1882](https://www.elconfidencial.com/espana/2020-06-08/exceso-muertes-coronavirus-espana-gripe-1918_2626504/)
+
