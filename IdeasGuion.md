@@ -11,12 +11,15 @@
 - El creador del PCR advirtió que no funcionaba para eso.
 - Murio Cary Mullis en el 2019.
 - Cómo funciona el PCR
-- Otros epidemiólogos y artículos advirtiendo sobre el PCR. 
+- Otros epidemiólogos y artículos advirtiendo sobre el PCR.
+  - [Presidente de Tanzania revela la inconsistencia de los PCR y advierte sobre el peligro de las vacunas](https://youtu.be/rMUUC1Z-mV4)  
 - Modelos de predicción exagerados (Reino Unido)
 - Incentivos a reportar más casos positivos para hospitales. 
 - Resumir lo anterior, aportar perspectiva.
 - Cuarentena encierra a personas que ganan al día y son sosten familiar (apelar emoción).
 - Posible agenda, aprovechar el caos? Indispensable investigar a fondo.
+- Nuevas normas de control que implantan los paises
+  - [ELISA herramienta de cibervigilancia que pretende evitar la difusion de narrativas antiglobalistas y discursos hostiles](https://www.elconfidencial.com/espana/2020-11-22/elisa-la-herramienta-de-ciberseguridad-del-cni-que-investiga-la-desinformacion-en-espana_2842835/)
 - Origen de laboratorio.
 - Antecedentes de instituciones trabajando con virus y coronavirus, patentes.
 - Había conocimiento previo? Insider trading.
