@@ -27,11 +27,18 @@
 
 [Excess mortality during the Coronavirus pandemic (COVID-19)](https://ourworldindata.org/excess-mortality-covid)
 
+[U.K. Death Rate 1950-2021](https://www.macrotrends.net/countries/GBR/united-kingdom/death-rate)
 
+[COVID-19: How mortality rates in 2020 compare with past decades and centuries](https://news.sky.com/story/covid-19-how-mortality-rates-in-2020-compare-with-past-decades-and-centuries-12185275)
 
 [Suecia reporta menos muertes en el 2020 que en el 2012](https://tierrapura.org/2021/03/11/suecia-reporta-menos-muertes-en-el-2020-que-en-el-2012-despues-de-rechazar-las-politicas-globalistas-del-virus-pcch/?v=1)
 
 [Exceso de mortalidad España. 68.000](https://www.eldiario.es/sociedad/muertes-semana-dispara-mortalidad-coronavirus-12-enero_1_5959361.html)
 
 [Fallecimientos por 1.000 habitantes en España desde 1882](https://www.elconfidencial.com/espana/2020-06-08/exceso-muertes-coronavirus-espana-gripe-1918_2626504/)
+
+[Deaths due to coronavirus (COVID-19) compared with deaths from influenza and pneumonia, England and Wales](https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/bulletins/deathsduetocoronaviruscovid19comparedwithdeathsfrominfluenzaandpneumoniaenglandandwales/deathsoccurringbetween1januaryand31august2020)
+
+[Study: Most N.Y. COVID Patients on Ventilators Died](https://www.webmd.com/lung/news/20200422/most-covid-19-patients-placed-on-ventilators-died-new-york-study-shows#1)
+
 
