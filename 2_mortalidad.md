@@ -7,7 +7,7 @@
 
 [Un exceso de 177.000 muertes: qué dicen los datos del MoMo sobre el coronavirus en Europa](https://magnet.xataka.com/en-diez-minutos/exceso-177-000-muertes-que-dicen-datos-momo-coronavirus-europa)
 
-[https://odysee.com/@corbettreport:0/qfc073-excessdeaths:a](What About Excess Mortality? - Questions For Corbett)
+[What About Excess Mortality? - Questions For Corbett](https://odysee.com/@corbettreport:0/qfc073-excessdeaths:a)
 
 [Excess Mortality - What You Aren't Being Told](https://odysee.com/@drsambailey:c/excess-mortality-what-you-aren-t-being:0)
 
