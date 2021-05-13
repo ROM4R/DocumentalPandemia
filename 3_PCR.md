@@ -4,3 +4,5 @@
 
 [De las PCR a los test de anticuerpos: el riesgo de los falsos negativos](https://www.newtral.es/de-las-pcr-a-los-test-de-anticuerpos-el-riesgo-de-los-falsos-negativos/20200420/)
 
+[Covid-19: the problems with case counting](https://www.bmj.com/content/370/bmj.m3374)
+
