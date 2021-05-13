@@ -25,6 +25,10 @@
 
 [Suecia tuvo una tasa de mortalidad inferior a la de la mayor parte de Europa en 2020, a pesar de que no hubo confinamientos](https://fee.org.es/articulos/suecia-tuvo-una-tasa-de-mortalidad-inferior-a-la-de-la-mayor-parte-de-europa-en-2020-a-pesar-de-que-no-hubo-confinamientos/amp)
 
+[Excess mortality during the Coronavirus pandemic (COVID-19)](https://ourworldindata.org/excess-mortality-covid)
+
+
+
 [Suecia reporta menos muertes en el 2020 que en el 2012](https://tierrapura.org/2021/03/11/suecia-reporta-menos-muertes-en-el-2020-que-en-el-2012-despues-de-rechazar-las-politicas-globalistas-del-virus-pcch/?v=1)
 
 [Exceso de mortalidad España. 68.000](https://www.eldiario.es/sociedad/muertes-semana-dispara-mortalidad-coronavirus-12-enero_1_5959361.html)
