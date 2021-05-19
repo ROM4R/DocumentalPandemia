@@ -41,9 +41,12 @@
 - Antecedentes de instituciones trabajando con virus y coronavirus, patentes.
   - [China en 2013 creaba nuevos virus a partir de la Gripe Aviar en sus laboratorios](https://elpais.com/sociedad/2013/05/03/actualidad/1367584080_767702.html) 
 - Había conocimiento previo? Insider trading.
-- Evento 201, Rockefeller escenarios. Surprise Outbreak.
+- Evento 201
   - [Quien es Bill Gates y de donde viene? Historial con vaculas, patrocina Evento 201, grandes inversiones en Wuhan, Proyecto ID 2020](https://www.youtube.com/watch?v=ShGuviStK20&t=323s)
 - Que roll cumple Bill Gates?
   - [Sara Cunial, diputada Italiana en el Parlamento acusa a Bill Gates de ser el causante del crimen de despoblación](https://odysee.com/@elconejodealicia:a/Diputada-Italiana-acusa-a-Bill-Gates-de-ser-el-causante-de-despoblacio%CC%81n-:2)
 - Gente que vive al día cómo enfrenta la cuarentena y el encierro. ¿Aumento en mortalidad?
   - [OMS reconoce que la tasa de letalidad es normal](https://www.who.int/bulletin/volumes/99/1/20-265892-ab/es/)
+- Rockefeller escenarios. Surprise Outbreak.
+- Gente que vive al día cómo enfrenta la cuarentena y el encierro. ¿Aumento en mortalidad?
+
