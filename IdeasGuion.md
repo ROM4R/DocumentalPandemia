@@ -20,6 +20,7 @@
 - Origen de laboratorio.
 - Antecedentes de instituciones trabajando con virus y coronavirus, patentes.
 - Había conocimiento previo? Insider trading.
-- Evento 201, Rockefeller escenarios. Surprise Outbreak. 
+- Evento 201. Mencionar participantes.
+- Rockefeller Scenarios.
 
 Gente que vive al día cómo enfrenta la cuarentena y el encierro. ¿Aumento en mortalidad?
